@@ -1,1 +1,16 @@
-# how-to-get-gift-cards-for-free-on-amazon
+# Amazon.com Gift Cards ("GCs") - the gift of unlimited freedom, delivered electronically.
+Amazon.com Gift Cards ("GCs") - the gift of unlimited freedom, delivered electronically. GCs never expire and can be redeemed towards millions of items on Amazon, and certain of its affiliated websites. Whether you are looking for books, music, electronics, computers, or software - you'll find it here. Are you looking for a gift for your partner or your parents? Amazon has you covered! Amazon.com is the place to find and discover almost anything you want to buy online at a great price. Find an awesome gift for anyone and ship it to them fast.
+[👉⏩ CLICK HERE TO GET NOW FREE](https://ecomadboosters.xyz/free%20amazon%20gift%20card/)
+[👉⏩ CLICK HERE TO GET NOW FREE](https://ecomadboosters.xyz/free%20amazon%20gift%20card/)
+
+How can I get my gift card?
+To receive your free Amazon Gift Card code, all you have to do is sign up for an account on Idle-Empire, answer a few paid surveys, watch videos, or complete offers and quickly redeem your points for a gift card that will be electronically delivered. We have gifted over $8.1 million dollars worth of rewards since 2015 and we want you to have your share!
+
+What can I do with my gift card?
+Shop on Amazon and make use of your free Amazon Gift Card on a wide range of brands on clothing, home, garden, tools, grocery items, health and beauty products, toys, shoes, automotive and all things electronic. Simply log on to Amazon.com and redeem your gift card using the claim code and your account will automatically save the balance for future purchases. No need to re-enter the code at the end of your purchase. It will instantly be added as a credit to your Amazon.com account.
+
+About Amazon
+Amazon.com is an American owned company based in Seattle and is the largest online retailer in the world. They started as an online bookstore and then later expanded into selling DVDs, CDs, audiobooks, e-books, video downloads and streaming, MP3 downloads and streaming, electronics, video games, clothing, merchandise, jewelry, food and more. Amazon also offers international shipping on most of their products and in the US, depending on the category, they offer free shipping for a certain minimum amount spent. And that’s not all. Amazon.com also has a featured Prime membership where you get the perks of free 1-day delivery regardless of the amount you shopped for! Enjoy shopping at the biggest online store in the world.
+
+Disclaimer
+Amazon.com is not a sponsor of this promotion. Amazon.com Gift Cards ("GCs") may be redeemed on the Amazon.com website towards the purchase of eligible products listed in the online catalogue and sold by Amazon.com or any other seller selling through Amazon.com. GCs cannot be redeemed for purchases of other gift cards. Purchases are deducted from the GC balance. To redeem or view a GC balance, visit "Your Account" on Amazon.com. Except as required by law, GCs cannot be reloaded, resold, transferred for value, redeemed for cash or applied to any other account. Amazon is not responsible if a GC is lost, stolen, destroyed or used without permission. GCs are issued by Amazon. All Amazon ®, ™ & © are IP of Amazon.com, Inc. or its affiliates.
